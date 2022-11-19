@@ -1,1 +1,1 @@
-# VIKAS-R
+# VIKAS
